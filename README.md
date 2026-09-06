@@ -20,11 +20,19 @@ $${\color{#F9D0C5}\textsf{he \quad\  / \quad\ \color{#C996B2}him \quad\  \color{
 <p align="center">
 <img width = "500" src="https://files.catbox.moe/ukauor.png" alt="67">
 
-hi, i'm val, Prussia, or ferryman! i'm a minor, my birthday's on august 29th, and i suspect osdd-1a. i go by hy/hym, or he/him depending on my moods. i show some narcissistic, lying, and angry behaviors, and trying to better myself slowly. I have a big self image as well, which makes me prone to insults about my apperances, irl or online
+hi, i'm val, markus, glory, or whatever u wanna call me. i go by hy/they/it or feminine pronouns when I feel happy. I am a minor who's 15, i am genderfloy, mlm, lithromantic, and transneumasc. I suspect some kind of dissociative disorder, but I won't go into details
 
-iwc all times. I can easily get angry, but i'm very energetic, and hyper a lot of the time. I'm excited to socialise, but I easily get drained, I am also a listener. but with adhd diagnosed, i have a hard time focusing, or easily get distracted, and may ask you to repeat yourself,  because i may not be listening, or i misread what you say. i also have a trash memory, so domn't be suprised if i don't remember something
+I'm friendly to people who know me well enough, have similar interests/typing styles, friends of friends, or anyone willing to not piss me off and be kind to me :) I am a little bit bad with boundaries, it's not too severe recently, I try my best to censor myself near others, but I am blunt by nature a lot of the time if i'm mad, and I am self centered, a lot. Please tell me if i'm talking about myself too much, but I am better at socializing now than in the past, luckily :)
 
-i joke around a lot, and don't know if anything's serious until too late. tone tags are **greatly** appreciated, please and thank you ! i also struggle with showing a large range of emotions, and have struggled with trauma at 5-9. i am unaware if anything a person does is bad unless notified. my main, [@roadtosleepyhollow](https://github.com/roadtosleepyhollow), is more updated, Read there
+If you want to apologize to me directly, or you want me to own up to things, and if i recognize your discord, add me at @roadtosleepyhollow. If not, contact my atabook, do it anyways if you're gonna friend me for anything and you don't see me in pony town, my main account is private unless we are close! !!DO NOT INVOLVE ME IN DRAMA/DISCOURSE UNLESS IT'S NEEDED!! key word **needed**!! It's annoying and potentially stress inducing, ***heavily depending*** on the topics.
+
+DO NOT COPY ME!!!!!!!!!!!!!!!!!!! DO NOT COPY ME WHATSOEVER. DOUBLES OF MY KINS DNIUID/CLOSE. DOUBLES OF ANY KIND DNIUID/CLOSE. PLEASE DON'T COPY. THIS HAS HAPPENED MULTIPLE TIMES. **I DO NOT WANT TO BE LOOKED UP TO, I AM A WORSE PERSON NOW THAN IN THE FUTURE, I DON'T WANT TO RISK ANYTHING. DO NOT LOOK UP TO ME, COPY MY FAVORITES, TRY NOT TO TAKE HEAVY INSPO/COPY AVATARS/PONIES UNLESS YOU ASK!!!** Many more, but those are most common i #experience. It's weird
+
+i am a yumeshipper, I ship myself with Karl from Guts and Blackpowder. He is my beloved, and he is my only lover! I am voidsharing. Doubles dni, along with canada (hetalia), diamondback (both elite and basic) ((bloons tower defense 6)), and american ferryman (guts and blackpowder)! (all minus karl are nonsharing)
+
+I am traumatized a bit. Do not interact if you're over 25 unless i int first. iwc if you're 19+, and -13 unless friend beforehand. I get worried i might do bad things, as well as being a victim of bad things making me have some trust issues with people. I struggle with thoughts and memory issues a lot, i don't like mentions of MSI, someone cursing/slurring unless close, or whatever. spoil anything overly sexual/harm inducing if it's important in the conversation, saves me from being weirded out
+
+I am always free to socialise, though I may be a bit distant/zoned out, or mood swings may happen, i am really friendly, just sensitive a small bit. :Sweat: be aware though, and always IWC. read my rentry if you need to know any other information, or ask me! I'll answer best i can! I am also direct in talking, i will not censor things unless i know it may make someone uncomfortable, please tell me beforehand
 
   main: [@roadtosleepyhollow](https://github.com/roadtosleepyhollow)
   
@@ -32,7 +40,7 @@ i joke around a lot, and don't know if anything's serious until too late. tone t
 
 pony town:
 
-c+h freely unless my brother [@ger-ita](https://github.com/ger-ita) is with me. unless you ASK us both !!!! Or if my friends (linked in profile) are sitting with me !! i'm friendly to sit with, but i can get pissed / irritated if someone is covering me when I rejoin from disconnecting/waking up, overall i'm friendly, though! and maybe you can be my friend too !! Just tread carefully , I can lash out, especially at random people .
+c+h freely unless my oomf [@ger-ita](https://github.com/ger-ita) is with me! unless you ASK us both !!!! Or if my friends (linked in profile) are sitting with me !! i'm friendly to sit with, but i can get pissed / irritated if someone is covering me when I rejoin from disconnecting/waking up, overall i'm friendly, though! and maybe you can be my friend too !! Just tread carefully , I can lash out, especially at random people .
 
 i don't block unless you hurt me , or I find anything bad out !! you should be good unless youre in the dni , or have a problematic unforgivable past ! if you don't ... my atabook is blank, sign it please !! I will reply asap. also read my links if you do plan to sign , unless it's complimenting a skin of mine!
 
