@@ -1,23 +1,23 @@
 <div align="center">
 <p align="right">
-<img width="850" height="200" src="https://files.catbox.moe/v1mbqm.png" alt="67">
+<img width="850" height="200" src="https://files.catbox.moe/333aya.png" alt="67">
 <p align="center">
-<img height="320" src="https://files.catbox.moe/acbryv.png" align="left">
+<img height="320" src="https://files.catbox.moe/a3iul1.png" align="right">
 <p align="center">
    
-$${\color{#ffffff}\textsf{(engi)neer monkey \quad\ \color{#ffffff}oder \quad\ \color{#ffffff}ferryman}}$$
+$${\color{#D27F84}\textsf{(engi)neer \color{#E7AE95} monkey \quad\ \color{#AC6583}oder \quad\ \color{#F9F0B1}ferry\color{#C07384}man}}$$
 
-$${\color{#ffffff}\textsf{enboy \color{#ffffff}\quad\ heteroflux \quad\ requies\color{#ffffff}romantic}}$$
+$${\color{#F9F0B1}\textsf{enboy \color{#E7AE95}\quad\ heteroflux \quad\ requies\color{#AC6583}romantic}}$$
 
-$${\color{#ffffff}\textsf{he / \color{#ffffff}him \quad\  \color{#ffffff} \quad\ it \color{#ffffff}/ its}}$$
+$${\color{#C07384}\textsf{he / \color{#E7AE95}him \quad\  \color{#AC6583} \quad\ it \color{#F9F0B1}/ its}}$$
 
 <p align="center"> 
 
 <details closed>
-<summary>$${\color{#ffffff}\textsf{extended \quad\ \color{#ffffff}info}}$$</summary>
+<summary>$${\color{#E7AE95}\textsf{extended \quad\ \color{#AC6583}info}}$$</summary>
 ⠀
 <p align="center">
-<img width = "500" src="https://files.catbox.moe/v1mbqm.png" alt="67">
+<img width = "500" src="https://files.catbox.moe/yhjm1v.png" alt="67">
 
 hi! I'm engineer monkey or ferry, or valentine! whatever works for you works! I kin a few characters, american ferryman (dbls dni, barry fictkins iwecucf, other than that oti(open to int)) and engineer monkey (dbls iwc, other fictkins of same media int)! I suspect some kind of dissociative disorder from research, but I won't go into details. i am heteroflexible, maaaybe bicurious?? Continuing, i'm enboy (nonbinary & male bigender), and [requiesromantic](https://lgbtqia.wiki/wiki/Requiesromantic)!
 
@@ -75,4 +75,4 @@ You are a bad person, and I believe you can't change your ways, even if you were
   <i><a href="https://fluffle.cc/engineer-monkey">fluffle</a></i> <i><a href="https://pronouns.cc/@bloodytea">prns.cc</a></i> <i><a href="https://bloodytea.atabook.org/">新book</a></i>
 </p>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jqi4ggf3dxjk4qpg6p4deelgim&cover_image=false&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=9d719f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31jqi4ggf3dxjk4qpg6p4deelgim&cover_image=false&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=D27F84&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
