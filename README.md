@@ -1,26 +1,25 @@
 <div align="center">
 <p align="right">
-<img width="850" height="200" src="https://files.catbox.moe/t5yj5v.png" alt="67">
+<img width="850" height="200" src="https://files.catbox.moe/v1mbqm.png" alt="67">
 <p align="center">
-<img height="320" src="https://files.catbox.moe/2we2dg.png" align="left">
+<img height="320" src="https://files.catbox.moe/acbryv.png" align="left">
 <p align="center">
-<img width= "500" src="https://files.catbox.moe/ukauor.png" alt="67">
    
-$${\color{#F9D0C5}\textsf{prussia \quad\ \color{#9E71A0}oder \quad\ \color{#C996B2}ferryman}}$$
+$${\color{#ffffff}\textsf{(engi)neer monkey \quad\ \color{#ffffff}oder \quad\ \color{#ffffff}ferryman}}$$
 
-$${\color{#C996B2}\textsf{enboy \quad\ \color{#9E71A0}male \quad\ \color{#F9D0C5}\quad\ mlm \quad\ lith\color{#C996B2}romantic}}$$
+$${\color{#ffffff}\textsf{enboy \color{#ffffff}\quad\ heteroflux \quad\ requies\color{#ffffff}romantic}}$$
 
-$${\color{#F9D0C5}\textsf{he \quad\  / \quad\ \color{#C996B2}him \quad\  \color{#C996B2} \quad\ snow \quad\  \color{#9E71A0}/ \quad\ blood}}$$
+$${\color{#ffffff}\textsf{he / \color{#ffffff}him \quad\  \color{#ffffff} \quad\ it \color{#ffffff}/ its}}$$
 
 <p align="center"> 
 
 <details closed>
-<summary>$${\color{#F9D0C5}\textsf{extended \quad\ \color{#C996B2}info}}$$</summary>
+<summary>$${\color{#ffffff}\textsf{extended \quad\ \color{#ffffff}info}}$$</summary>
 ⠀
 <p align="center">
-<img width = "500" src="https://files.catbox.moe/ukauor.png" alt="67">
+<img width = "500" src="https://files.catbox.moe/v1mbqm.png" alt="67">
 
-hi, i'm val, markus, glory, or whatever u wanna call me. i go by hy/they/it or feminine pronouns when I feel happy. I am a minor who's 15, i am genderfloy, mlm, lithromantic, and transneumasc. I suspect some kind of dissociative disorder, but I won't go into details
+hi! I'm engineer monkey or ferry, or valentine! whatever works for you works! I kin a few characters, american ferryman (dbls dni, barry fictkins iwecucf, other than that oti(open to int)) and engineer monkey (dbls iwc, other fictkins of same media int)! I suspect some kind of dissociative disorder from research, but I won't go into details. i am heteroflexible, maaaybe bicurious?? Continuing, i'm enboy (nonbinary & male bigender), and [requiesromantic](https://lgbtqia.wiki/wiki/Requiesromantic)!
 
 I'm friendly to people who know me well enough, have similar interests/typing styles, friends of friends, or anyone willing to not piss me off and be kind to me :) I am a little bit bad with boundaries, it's not too severe recently, I try my best to censor myself near others, but I am blunt by nature a lot of the time if i'm mad, and I am self centered, a lot. Please tell me if i'm talking about myself too much, but I am better at socializing now than in the past, luckily :)
 
