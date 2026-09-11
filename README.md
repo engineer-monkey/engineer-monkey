@@ -21,17 +21,17 @@ $${\color{#C07384}\textsf{he / \color{#E7AE95}him \quad\  \color{#AC6583} \quad\
 
 hi! I'm engineer monkey or ferry, or valentine! whatever works for you works! I kin a few characters, american ferryman (dbls dni, barry fictkins iwecucf, other than that oti(open to int)) and engineer monkey (dbls iwc, other fictkins of same media int)! I suspect some kind of dissociative disorder from research, but I won't go into details. i am heteroflexible, maaaybe bicurious?? Continuing, i'm enboy (nonbinary & male bigender), and [requiesromantic](https://lgbtqia.wiki/wiki/Requiesromantic)!
 
-I'm friendly to people who know me well enough, have similar interests/typing styles, friends of friends, or anyone willing to not piss me off and be kind to me :) I am a little bit bad with boundaries, it's not too severe recently, I try my best to censor myself near others, but I am blunt by nature a lot of the time if i'm mad, and I am self centered, a lot. Please tell me if i'm talking about myself too much, but I am better at socializing now than in the past, luckily :)
+I'm friendly to people who know me well enough, have similar interests/typing styles, friends of friends, or anyone willing to not piss me off and be kind to me :) I am a little bit bad with boundaries, but it's better than majority of peoples grasp of them, so that's good??
 
-If you want to apologize to me directly, or you want me to own up to things, and if i recognize your discord, add me at @roadtosleepyhollow. If not, contact my atabook, do it anyways if you're gonna friend me for anything and you don't see me in pony town, my main account is private unless we are close! !!DO NOT INVOLVE ME IN DRAMA/DISCOURSE UNLESS IT'S NEEDED!! key word **needed**!! It's annoying and potentially stress inducing, ***heavily depending*** on the topics.
+I try my best to censor myself near others, but I am blunt by nature a lot of the time if i'm mad, and I am self centered if i don't notice it! Please tell me if i'm talking about myself too much, but I am better at socializing now than in the past, luckily :)
 
 DO NOT COPY ME!!!!!!!!!!!!!!!!!!! DO NOT COPY ME WHATSOEVER. DOUBLES OF MY KINS DNIUID/CLOSE. DOUBLES OF ANY KIND DNIUID/CLOSE. PLEASE DON'T COPY. THIS HAS HAPPENED MULTIPLE TIMES. **I DO NOT WANT TO BE LOOKED UP TO, I AM A WORSE PERSON NOW THAN IN THE FUTURE, I DON'T WANT TO RISK ANYTHING. DO NOT LOOK UP TO ME, COPY MY FAVORITES, TRY NOT TO TAKE HEAVY INSPO/COPY AVATARS/PONIES UNLESS YOU ASK!!!** Many more, but those are most common i #experience. It's weird
 
-i am a yumeshipper, I ship myself with Karl from Guts and Blackpowder. He is my beloved, and he is my only lover! I am voidsharing. Doubles dni, along with canada (hetalia), diamondback (both elite and basic) ((bloons tower defense 6)), and american ferryman (guts and blackpowder)! (all minus karl are nonsharing)
+my f/os are canada from hetalia/the flag, monkey sub/snipermonkey/diamondback from bloons tower defense series, and american ferryman and karl from guts and blackpowder! Karl is my main f/o, 
 
-I am traumatized a bit. Do not interact if you're over 25 unless i int first. iwc if you're 19+, and -13 unless friend beforehand. I get worried i might do bad things, as well as being a victim of bad things making me have some trust issues with people. I struggle with thoughts and memory issues a lot, i don't like mentions of MSI, someone cursing/slurring unless close, or whatever. spoil anything overly sexual/harm inducing if it's important in the conversation, saves me from being weirded out
+don't interact with me unless needed if you're under 13, over 21, or in my dni below! all for my comfort, I have trust issues a small bit when people are 18+ and really weird towards me -_-* and in general, as well :( But I am really social when I feel happy! though I do show a limited range of emotions, slightly more than you expect, but I mainly feel happiness, anger, sadness, and a tiny bit of sad emotions!
 
-I am always free to socialise, though I may be a bit distant/zoned out, or mood swings may happen, i am really friendly, just sensitive a small bit. :Sweat: be aware though, and always IWC. read my rentry if you need to know any other information, or ask me! I'll answer best i can! I am also direct in talking, i will not censor things unless i know it may make someone uncomfortable, please tell me beforehand
+!!DO NOT INVOLVE ME IN DRAMA/DISCOURSE UNLESS IT'S NEEDED!! it pisses me off if i dont have any correlation to some bullshit u get in and drag me in
 
   main: [@roadtosleepyhollow](https://github.com/roadtosleepyhollow)
   
@@ -68,6 +68,8 @@ if you have acted out on [DARK SHIPPING](https://fanlore.org/wiki/Darkship) and 
 you talk about any kind of **serious topics** ([THE EPSTIEN FILES](https://en.wikipedia.org/wiki/Epstein_files), [DIDDY](https://en.wikipedia.org/wiki/Diddy_parties), etc.) **jokingly**. 
 
 You are a bad person, and I believe you can't change your ways, even if you were mentally ill then, or changed your ways now unless you have valid proof, if you do/are any of the above.
+
+If you want to apologize to me directly, or you want me to own up to things, and if i recognize your discord, add me at @roadtosleepyhollow. If not, contact my atabook, do it anyways if you're gonna friend me for anything and you don't see me in pony town.
 
 </details>
 
