@@ -49,8 +49,7 @@ you talk about any kind of **serious topics** ([THE EPSTIEN FILES](https://en.wi
 
 You are a bad person, and I believe you can't change your ways, even if you were mentally ill then, or changed your ways now unless you have valid proof, if you do/are any of the above.
 
-If you want to apologize to me directly, or you want me to own up to things, and if i recognize your discord, add me at @roadtosleepyhollow. If not, contact my atabook, do it anyways if you're gonna friend me for anything and you don't see me in pony town.
-
+If you want to apologize to me directly, or you want me to own up to things, and if i recognize your discord, contact my atabook, or whatever
 </details>
 
 <p align="center">
