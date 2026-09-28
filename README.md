@@ -5,23 +5,23 @@
 <img height="320" src="https://files.catbox.moe/a3iul1.png" align="right">
 <p align="center">
    
-$${\color{#D27F84}\textsf{(engi)neer \color{#E7AE95} monkey \quad\ \color{#AC6583}oder \quad\ \color{#F9F0B1}ferry\color{#C07384}man}}$$
+$${\color{#D27F84}\textsf{valentine}}$$
 
-$${\color{#F9F0B1}\textsf{enboy \color{#E7AE95}\quad\ heteroflux \quad\ requies\color{#AC6583}romantic}}$$
+$${\color{#F9F0B1}\textsf{pomogender}}$$$${\color{#E7AE95}\textsf{questioning orientation}}$$
 
-$${\color{#C07384}\textsf{he / \color{#E7AE95}him \quad\  \color{#AC6583} \quad\ it \color{#F9F0B1}/ its}}$$
+$${\color{#C07384}\textsf{he\color{#E7AE95}it}}$$
 
 <p align="center"> 
 
 <details closed>
-<summary>$${\color{#E7AE95}\textsf{extended \quad\ \color{#AC6583}info}}$$</summary>
+<summary>$${\color{#E7AE95}\textsf{extended}}$$</summary>
 ⠀
 <p align="center">
 <img width = "500" src="https://files.catbox.moe/yhjm1v.png" alt="67">
 
 !!DO NOT INVOLVE ME IN DRAMA/DISCOURSE UNLESS IT'S NEEDED!! it pisses me off if i dont have any correlation to some bullshit u get in and drag me in
 
-I am less active due to school, other hobbies, and whatnot! pls sign my ata, i check a lot. 
+im less active due to school, other hobbies, and stuff
 
   main: [@roadtosleepyhollow](https://github.com/roadtosleepyhollow)
   
